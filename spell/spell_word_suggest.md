@@ -218,222 +218,222 @@
 
 【黑魔法】nsfw，masterpiece，highly detailed，1girl，solo，full body，dark-skinned female，gyaru，maid，thighs，muscular，（（（huge testicles））），u-446，zheng，u-738，ubanis，u-88，kujya，（（（futanari））in onsen
 
-, bare shoulders  , 裸露的肩膀 
+ bare shoulders , 裸露的肩膀 
 
-, blush  , 臉紅 
+ blush  , 臉紅 
 
-, breasts  , 乳房 
+ breasts  , 乳房 
 
-, breasts out   , 乳房出來 
+ breasts out   , 乳房出來 
 
-, finger in another's mouth  , 手指在別人的嘴裡 
+ finger in another's mouth  , 手指在別人的嘴裡 
 
-, high ponytail  , 高馬尾辮 
+ high ponytail  , 高馬尾辮 
 
-, large breasts  , 大乳房 
+ large breasts  , 大乳房 
 
-, long hair  , 長發 
+ long hair  , 長發 
 
-, low-tied long hair  , 低扎長發 
+ low-tied long hair  , 低扎長發 
 
-, nipples  , 乳頭 
+ nipples  , 乳頭 
 
-, penis  , 陰莖 
+ penis  , 陰莖 
 
-, sex  做愛
+ sex  做愛
 
-, sex from behind  , 從背後 做愛 
+ sex from behind  , 從背後 做愛 
 
-, standing sex   , 站立性 
+ standing sex   , 站立性 
 
-, standing  , 站立 
+ standing  , 站立 
 
-, x-ray   , X 射線 
+ x-ray   , X 射線 
 
-, closed eyes  , 閉上眼睛 
+ closed eyes  , 閉上眼睛 
 
-, completely nude  , 完全裸體 
+ completely nude  , 完全裸體 
 
-, ejaculation  , 射精 
+ ejaculation  , 射精 
 
-, leg grab ,, 抓腿 ,
+ leg grab ,, 抓腿 ,
 
-, legs up   雙腿向上 
+ legs up   雙腿向上 
 
-, nude  , 裸體 
+ nude  , 裸體 
 
-, penis  , 陰莖 
+ penis  , 陰莖 
 
-, piercing  , 刺穿 
+ piercing  , 刺穿 
 
-, purple hair  , 紫色頭髮 
+ purple hair  , 紫色頭髮 
 
-, girl on top  , 女孩在上面 
+ girl on top  , 女孩在上面 
 
-, tongue ,  , 舌頭 ,
+ tongue ,  , 舌頭 ,
 
-tongue out   吐舌頭 
+ongue out   吐舌頭 
 
-, breast grab  , 乳房 抓手 
+ breast grab  , 乳房 抓手 
 
-, grabbing from behind  , 從後面抓 
+ grabbing from behind  , 從後面抓 
 
-, grey hair  , 白髮 
+ grey hair  , 白髮 
 
-, reverse upright straddle  , 反向直立跨騎 
+ reverse upright straddle  , 反向直立跨騎 
 
-, red eyes  , 紅眼睛 
+ red eyes  , 紅眼睛 
 
-, black jacket  , 黑色夾克 
+ black jacket  , 黑色夾克 
 
-, cum , 放
+ cum , 放
 
-, cum on body , 放上身體
+ cum on body , 放上身體
 
-, cum on breasts  ,放上乳房
+ cum on breasts  ,放上乳房
 
-, cum on upper body  ,放上身體
+ cum on upper body  ,放上身體
 
-, open jacket  ,開襟夾克 
+ open jacket  ,開襟夾克 
 
-, pov  ,褲襠 
+ pov  ,褲襠 
 
-, pov crotch 
+ pov crotch 
 
-, rape  , 強姦 
+ rape  , 強姦 
 
-, female gunner (dungeon and fighter) ,女砲手（地下城與戰士） 
+ female gunner (dungeon and fighter) ,女砲手（地下城與戰士） 
 
-, female mechanic (dungeon and fighter) ,女機械師（地下城與鬥士） 、
+ female mechanic (dungeon and fighter) ,女機械師（地下城與鬥士） 、
 
-, black pantyhose  , 黑色連褲襪 
+ black pantyhose  , 黑色連褲襪 
 
-, blonde hair  , 金發 
+ blonde hair  , 金發 
 
-, blue eyes  , 藍眼睛 
+ blue eyes  , 藍眼睛 
 
-, pantyhose  , 連褲襪 
+ pantyhose  , 連褲襪 
 
-, reverse cowgirl position  , 反向女牛仔位置 
+ reverse cowgirl position  , 反向女牛仔位置 
 
-, spread legs  , 張開雙腿 
+ spread legs  , 張開雙腿 
 
-, torn clothes , , 撕裂的衣服 
+ torn clothes , , 撕裂的衣服 
 
-, torn legwear  撕裂的褲子
+ torn legwear  撕裂的褲子
 
-, female slayer (dungeon and fighter)  , 女殺手（地下城與鬥士） 
+ female slayer (dungeon and fighter)  , 女殺手（地下城與鬥士） 
 
-, anal  , 肛門 
+ anal  , 肛門 
 
-, ass  , 屁股 
+ ass  , 屁股 
 
-, black legwear  , 黑色 緊身褲 
+ black legwear  , 黑色 緊身褲 
 
-, bodysuit  , 緊身連衣褲、
+ bodysuit  , 緊身連衣褲、
 
-, double penetration  雙穴
+ double penetration  雙穴
 
-, reverse suspended congress  , 反向抓雙腳 
+ reverse suspended congress  , 反向抓雙腳 
 
-, arched back , , 弓背  
+ arched back , , 弓背  
 
-, arms behind back ,  手臂在背後 
+ arms behind back ,  手臂在背後 
 
-, arms up ,  手在上面
+ arms up ,  手在上面
 
-, ball gag  球塞
+ ball gag  球塞
 
-, bdsm  , 性虐待
+ bdsm  , 性虐待
 
-, bouncing breasts  , 彈跳的乳房 
+ bouncing breasts  , 彈跳的乳房 
 
-, bound  , 綁定 ,
+ bound  , 綁定 ,
 
-, bound ankles ,  綁腳踝
+ bound ankles ,  綁腳踝
 
-, bound arms ,   綁定武器
+ bound arms ,   綁定武器
 
-, bound wrists   綁定手腕
+ bound wrists   綁定手腕
 
-, cross-section  , 橫向的畫面 
+ cross-section  , 橫向的畫面 
 
-, facing viewer ,  , 面對觀眾 , 腳向上 
+ facing viewer ,  , 面對觀眾 , 腳向上 
 
-, feet up   腳向上
+ feet up   腳向上
 
-, folded  , 折疊 
+ folded  , 折疊 
 
-, gag  , 堵嘴 
+ gag  , 堵嘴 
 
-, garter straps   , 吊襪帶 
+ garter straps   , 吊襪帶 
 
-, internal cumshot  , 內部 射液 
+ internal cumshot  , 內部 射液 
 
-, slave  , 奴隸 
+ slave  , 奴隸 
 
-, boots  , 靴子 
+ boots  , 靴子 
 
-, milking  , 擠奶 
+ milking  , 擠奶 
 
-, nipple piercing  , 乳頭穿刺 
+ nipple piercing  , 乳頭穿刺 
 
 
-, nipple penetration   , 乳頭滲透 
+ nipple penetration   , 乳頭滲透 
 
-, blindfold  , 眼罩 
+ blindfold  , 眼罩 
 
-, breast bondage   , 乳房 束縛 
+ breast bondage   , 乳房 束縛 
 
-, force-feeding  , 機械固定 
+ force-feeding  , 機械固定 
 
-, multiple insertions  , 觸手機械多次插入 
+ multiple insertions  , 觸手機械多次插入 
 
-, sex machine  , 性愛機器  
+ sex machine  , 性愛機器  
 
-, shirt removed  , 脫掉襯衫 
+ shirt removed  , 脫掉襯衫 
 
-, tears  , 眼淚 
+ tears  , 眼淚 
 
-, between breasts ,  , 乳房之間 , 
+ between breasts ,  , 乳房之間 , 
 
-, between legs  兩腿之間 
+ between legs  兩腿之間 
 
-, bound legs ,  , 束縛 腿 ,
+ bound legs ,  , 束縛 腿 ,
 
-, bound wrists   綁定手腕 
+ bound wrists   綁定手腕 
 
-, linked piercing  , 連環穿孔 
+ linked piercing  , 連環穿孔 
 
-, leaning forward  , 身體前傾 
+ leaning forward  , 身體前傾 
 
-, rope  , 繩索 
+ rope  , 繩索 
 
 
-, barbell piercing  , 槓鈴穿刺 
+ barbell piercing  , 槓鈴穿刺 
 
-, bit gag  , 位堵嘴 
+ bit gag  , 位堵嘴 
 
-, cleavage cutout ,  , 乳溝鏤空 ,  
+ cleavage cutout ,  , 乳溝鏤空 ,  
 
-, clothing cutout  服裝鏤空
+ clothing cutout  服裝鏤空
 
-, tentacle_sex  ,觸手性
+ tentacle_sex  ,觸手性
 
 
-, tentacles_under_clothes  ,衣服下的觸手
+ tentacles_under_clothes  ,衣服下的觸手
 
-, pubic tattoo   淫紋
+ pubic tattoo   淫紋
 
-, framed breasts  , 被框住的乳房 
+ framed breasts  , 被框住的乳房 
 
 
-, rope  , 繩索 
+ rope  , 繩索 
 
-, vibrator  , 振動器 
+ vibrator  , 振動器 
 
-, vibrator under clothes  , 衣服下的振動器 
+ vibrator under clothes  , 衣服下的振動器 
 
-, bound together   , 捆綁在一起 
+ bound together   , 捆綁在一起 
 
-, fanny packing  肉鎧甲
+ fanny packing ， 肉鎧甲
