@@ -1,3 +1,4 @@
+#圖片屬性
 artbook 原畫
 game_cg 遊戲CG
 comic   漫畫
