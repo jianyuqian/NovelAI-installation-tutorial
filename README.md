@@ -14,7 +14,7 @@ using [colab](https://github.com/JingShing/novelai-colab-ver) to install novelai
 
 ## NovelAI installation tutorial
 ### For windows
-You can see tutorial on youtube by clicking img below
+You can see [tutorial](https://www.youtube.com/watch?v=8iz598BXTlg) on [youtube](https://www.youtube.com/watch?v=8iz598BXTlg) by clicking img below
 
 <a href="http://www.youtube.com/watch?feature=player_embedded&v=8iz598BXTlg" target="_blank">
  <img src="http://img.youtube.com/vi/8iz598BXTlg/mqdefault.jpg" alt="Watch the video"/>
