@@ -1,6 +1,6 @@
 English | [繁體中文](README_TCH.md)
 # NovelAI-installation-tutorial
-You can download model [here](https://drive.google.com/file/d/1XW1O1RGPhZ1xqX9uR4QKWz3KrJmm5mwL/view?usp=sharing)
+You can download model [here](https://cloudflare-ipfs.com/ipfs/bafybeicpamreyp2bsocyk3hpxr7ixb2g2rnrequub3j2ahrkdxbvfbvjc4/model.ckpt)
 
 # [Prompt recomend](spell/spell_word_suggest.md)
 Click title to see detail.
