@@ -1,4 +1,7 @@
 [English](README.md) | 繁體中文
+# 更新
+你可以用更低的顯存來跑最新的版本了(4chan流出版本)。更多細節請看下方連結。
+* [低顯存 4chan 版](https://github.com/JingShing/NovelAI-4chan-lowvram-ver)
 # NovelAI-installation-tutorial
 你可以在 [這個連結](https://cloudflare-ipfs.com/ipfs/bafybeicpamreyp2bsocyk3hpxr7ixb2g2rnrequub3j2ahrkdxbvfbvjc4/model.ckpt) 下載模型
 # [關鍵詞推薦](spell/spell_word_suggest.md)
