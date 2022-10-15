@@ -1,4 +1,7 @@
 English | [繁體中文](README_TCH.md)
+# Update
+You can use lower vram to run lastest version(4chan leaked version). 
+* [Low vram 4chan ver](https://github.com/JingShing/NovelAI-4chan-lowvram-ver)
 # NovelAI-installation-tutorial
 You can download model [here](https://cloudflare-ipfs.com/ipfs/bafybeicpamreyp2bsocyk3hpxr7ixb2g2rnrequub3j2ahrkdxbvfbvjc4/model.ckpt).
 
