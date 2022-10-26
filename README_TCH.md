@@ -1,4 +1,8 @@
 [English](README.md) | 繁體中文
+# 工具推薦:
+* [關鍵詞提取器](https://github.com/JingShing/AI-image-tag-extractor)
+* [咒語生成器](https://github.com/JingShing/AI-Drawing-Spell-Generator)
+
 # 更新
 你可以用更低的顯存來跑最新的版本了(4chan流出版本)。更多細節請看下方連結。
 * [低顯存 4chan 版](https://github.com/JingShing/NovelAI-4chan-lowvram-ver)
