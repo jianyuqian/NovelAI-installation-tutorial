@@ -1,7 +1,7 @@
 English | [繁體中文](README_TCH.md)
 # Tool Recommend:
 * [Tag extractor](https://github.com/JingShing/AI-image-tag-extractor)
-* [spell generator](https://github.com/JingShing/AI-Drawing-Spell-Generator)
+* [spell generator(prompt generator)](https://github.com/JingShing/AI-Drawing-Spell-Generator)
 # Update
 You can use lower vram to run lastest version(4chan leaked version). More detail you can click link below.
 * [Low vram 4chan ver](https://github.com/JingShing/NovelAI-4chan-lowvram-ver)
